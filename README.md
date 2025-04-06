@@ -65,9 +65,8 @@ If you're looking for someone passionate, hardworking, and ready to grow — fee
 
 ### 📫 Contact Me
 
-- 📧 [vahiterenozer@gmail.com]  
-- 🌐 [your-portfolio-link.com] *(if any)*  
-- 💼 [[LinkedIn Profile](https://www.linkedin.com/in/vahiterenozer/)] *(if any)* 
+- 📧 vahiterenozer@gmail.com   
+- 💼 https://www.linkedin.com/in/vahiterenozer/
 
 ---
 
