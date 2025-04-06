@@ -70,4 +70,4 @@ If you're looking for someone passionate, hardworking, and ready to grow — fee
 
 ---
 
-### > "Growth happens when you’re uncomfortable. And I’m loving every step of it." 🌱 ###
+> "Growth happens when you’re uncomfortable. And I’m loving every step of it." 🌱
